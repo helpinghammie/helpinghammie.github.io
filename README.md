@@ -1,4 +1,4 @@
 # helpinghammie.github.io
-HelpingHammie Guide for AFK Journey!!!!
+Guide for AFK Journey
 
-idk maybe we will use this
+Not affiliated with Farlight Games or AFK Journey
